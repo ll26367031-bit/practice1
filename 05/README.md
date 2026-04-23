@@ -7,3 +7,9 @@ ABCです
 zss
 aksn
 1234567
+kkkkkkkk
+aaaaaaa
+zzzzzzz
+@@@@@@@@@
+pppppppp
+-------------
